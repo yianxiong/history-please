@@ -1,3 +1,4 @@
+#History of University of Toronto
 The University of Toronto was founded in 1827.
 The University of Toronto was originally named King's College before it severed it's connection to the church. This was because Trinity College, at the time a seperate institution, had been created by the Anglican seminary. University College was the nondenominational branch of the university. The University grew to adopt the college system, eventually totaling seven colleges on the st george campus. 
 The first women were admitted to the University in 1884. *The Varsity* published several articles throughout the 1880s arguing in favor of coeducation and the admittance of women. In the following years, seperate residences such as Annesley Hall and St. Hilda's were created to house soley female students.
